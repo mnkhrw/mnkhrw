@@ -6,7 +6,7 @@
 - 🤔 I’m looking for help with mainly coding and the tools to toubleshoot the problems.
 - 💬 Ask me about music and I can help you on this field :))
 - 📫 How to reach me: my inbox （￣︶￣）↗　
---⚡ Fun fact: A house cat is genetically 95.6% tiger.
+- ⚡ Fun fact: A house cat is genetically 95.6% tiger.
 
 
 
